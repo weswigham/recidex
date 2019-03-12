@@ -29,7 +29,7 @@ paper towel over the pan. Then heat it up to very hot, and pour on the egg. It w
 chopsticks to roll the omelette up right after the base firms up and before it burns (and the removing it from the pan onto a serving dish).
 This is... _challenging_ for an infrequent chopstick user - you may end up with scrambled tamago instead - I have cheated in the past by using the edge of a spatula or cake server to roll the omelette
 up instead, however the challenge is part of the (rapid) preparation, IMO. The ideal omelette is soft, slightly runny inside the rolls, and firm on the outside,
-with no browning or burning. Rolling at the right time is the first challenge, and thenr rolling quickly enough. The technique of removing
+with no browning or burning. Rolling at the right time is the first challenge, and then rolling quickly enough. The technique of removing
 the pan from the heat when you begin rolling can help with extending your pre-burn window, if you can spare the hand. Some browning will
 probably happen the first many times you prepare this - this is OK, it just looks bad (the browning will be the sugar). However, if you
 find the underside of the egg blackened - be smarter than I during one of my first attempts - just crack a new egg and try again; burnt egg tastes bad.
